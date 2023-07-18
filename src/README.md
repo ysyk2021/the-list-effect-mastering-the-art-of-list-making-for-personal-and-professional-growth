@@ -10,5 +10,4 @@ We believe that everyone can benefit from the power of lists, whether they are p
 
 Join us on this journey of discovery, as we explore the many ways in which lists can transform your life and help you achieve your goals and dreams. Whether you are a seasoned list-maker or just starting out, "The List Effect" has something to offer for everyone.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
