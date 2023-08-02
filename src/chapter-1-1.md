@@ -1,4 +1,4 @@
-Chapter 13: Why List-Making is Important
+Why List-Making is Important
 ========================================
 
 In this chapter, we will explore the significance of list-making for personal and professional growth. List-making is more than just a simple task management tool---it is a powerful practice that brings numerous benefits and impacts various aspects of our lives. This chapter will delve into the reasons why list-making is important and how it can positively transform our productivity, organization, and overall well-being.

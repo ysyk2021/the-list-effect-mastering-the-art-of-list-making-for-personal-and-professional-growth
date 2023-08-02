@@ -1,4 +1,4 @@
-Chapter 9: Building Resilience in the Face of Setbacks
+Building Resilience in the Face of Setbacks
 ======================================================
 
 In this chapter, we will delve into the importance of building resilience to overcome setbacks and provide you with strategies to develop a resilient mindset. By cultivating resilience, you can bounce back stronger from challenges, maintain a positive outlook, and continue your personal and professional growth.

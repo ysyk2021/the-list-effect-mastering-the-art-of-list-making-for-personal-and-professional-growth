@@ -1,4 +1,4 @@
-Chapter 6: Setting Goals for Professional Growth
+Setting Goals for Professional Growth
 ================================================
 
 In this chapter, we will explore the importance of setting goals for professional growth and how list-making can be a valuable tool in this process. By setting clear and achievable goals, we can drive our professional development and strive for success. Let's delve into the steps involved in setting goals for professional growth.

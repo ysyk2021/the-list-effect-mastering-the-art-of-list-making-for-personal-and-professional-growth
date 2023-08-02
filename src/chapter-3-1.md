@@ -1,4 +1,4 @@
-Chapter 8: Techniques for Creating Effective Lists
+Techniques for Creating Effective Lists
 ==================================================
 
 In this chapter, we will explore various techniques for creating effective lists that can maximize our personal and professional growth. List-making is an art that requires careful consideration and organization. By utilizing these techniques, we can enhance the efficiency and effectiveness of our lists, ultimately leading to greater productivity and success. Let's delve into these techniques and learn how to create impactful lists.

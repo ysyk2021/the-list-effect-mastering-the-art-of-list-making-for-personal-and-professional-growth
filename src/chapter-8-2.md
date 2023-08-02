@@ -1,4 +1,4 @@
-Chapter 5: Setting Goals for Personal Growth
+Setting Goals for Personal Growth
 ============================================
 
 In this chapter, we will explore the importance of setting goals for personal growth and how list-making can be a valuable tool in this process. By setting clear and meaningful goals, we can navigate the path towards self-improvement and fulfillment. Let's delve into the steps involved in setting goals for personal growth.

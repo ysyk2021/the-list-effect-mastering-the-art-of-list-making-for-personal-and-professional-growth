@@ -1,4 +1,4 @@
-Chapter 7: Celebrating Achievements
+Celebrating Achievements
 ===================================
 
 Celebrating achievements is a vital aspect of the list-making process. In this chapter, we will explore the importance of recognizing and honoring your accomplishments. By incorporating celebration into your list-making journey, you can boost motivation, cultivate a positive mindset, and fuel continued personal and professional growth.

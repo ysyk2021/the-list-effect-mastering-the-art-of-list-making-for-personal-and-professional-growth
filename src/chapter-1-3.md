@@ -1,4 +1,4 @@
-Chapter 12: The Role of the List Effect
+The Role of the List Effect
 =======================================
 
 In this chapter, we will explore the role of the List Effect in mastering the art of list making for personal and professional growth. The List Effect refers to the transformative impact that intentional list-making can have on our lives. By harnessing the power of lists, we can increase productivity, enhance organization, achieve goals, and experience overall improvement in various aspects of our lives. Let's delve into the key roles played by the List Effect.

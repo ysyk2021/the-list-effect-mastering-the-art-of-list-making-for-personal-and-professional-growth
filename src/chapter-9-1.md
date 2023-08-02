@@ -1,4 +1,4 @@
-Chapter 9: Using List-Making for Career Development
+Using List-Making for Career Development
 ===================================================
 
 In this chapter, we will explore how list-making can be a valuable tool for career development. By harnessing the power of intentional list-making, we can strategically plan and execute tasks that contribute to our professional growth and success. Let's delve into the various ways in which list-making can be used effectively for career development.

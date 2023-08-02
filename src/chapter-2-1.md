@@ -1,4 +1,4 @@
-Chapter 2: What is List-Making?
+What is List-Making?
 ===============================
 
 In this chapter, we will delve into the concept of list-making and explore its significance in personal and professional growth. Understanding what list-making entails and its benefits will help you harness its power to increase productivity, organize tasks, and achieve your goals.

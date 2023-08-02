@@ -1,4 +1,4 @@
-Chapter 12: Establishing Metrics for Success
+Establishing Metrics for Success
 ============================================
 
 In this chapter, we will explore the importance of establishing metrics for success when it comes to list-making for personal and professional growth. Setting clear and measurable metrics allows us to track progress, evaluate effectiveness, and make data-driven decisions. This chapter will provide insights and strategies for defining and utilizing metrics to assess the impact of our list-making practices.
