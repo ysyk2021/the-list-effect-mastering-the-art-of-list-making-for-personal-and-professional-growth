@@ -1,5 +1,3 @@
-Incorporating Self-Care into List-Making
-===================================================
 
 In this chapter, we will explore the importance of incorporating self-care into list-making practices. List-making is not only a tool for productivity and organization but also an opportunity to prioritize and nurture our well-being. By integrating self-care into our lists, we can create a balanced and fulfilling life. Let's delve into the steps involved in incorporating self-care into list-making.
 

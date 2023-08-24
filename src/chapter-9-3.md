@@ -1,5 +1,3 @@
-Building Skills Through List-Making
-==============================================
 
 In this chapter, we will explore how list-making can be a powerful tool for building and developing skills to enhance personal and professional growth. By leveraging the benefits of intentional list-making, we can strategically plan and execute tasks that contribute to skill acquisition and mastery. Let's delve into the steps involved in using list-making to build skills effectively.
 

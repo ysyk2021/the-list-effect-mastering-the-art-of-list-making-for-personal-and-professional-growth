@@ -1,5 +1,3 @@
-Chapter 3: Prioritizing and Time-Management
-===========================================
 
 In this chapter, we will explore how to prioritize tasks effectively and manage your time efficiently. By developing a system for prioritizing tasks, using time-management tools and techniques, and managing distractions and interruptions, you can maximize productivity and achieve your goals more effectively.
 

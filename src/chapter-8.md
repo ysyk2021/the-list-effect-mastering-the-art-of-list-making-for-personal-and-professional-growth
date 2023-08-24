@@ -1,5 +1,3 @@
-Chapter 7: Applying List-Making to Personal Growth
-==================================================
 
 In this chapter, we will explore how list-making can be applied to personal growth. By using list-making techniques, you can set goals for personal development, incorporate self-care into your routine, and track your progress over time.
 

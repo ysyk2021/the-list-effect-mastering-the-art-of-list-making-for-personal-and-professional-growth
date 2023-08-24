@@ -1,5 +1,3 @@
-Chapter 8: Applying List-Making to Professional Growth
-======================================================
 
 Effective list-making can be a powerful tool for advancing your career and achieving professional growth. Here are some ways to apply list-making to your professional development:
 

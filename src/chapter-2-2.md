@@ -1,5 +1,3 @@
-Types of Lists
-=========================
 
 Lists come in various forms and serve different purposes based on your needs and objectives. In this chapter, we will explore the different types of lists and how each can be utilized to enhance personal and professional growth. By understanding the various types of lists available, you can tailor your list-making approach to suit your specific requirements.
 

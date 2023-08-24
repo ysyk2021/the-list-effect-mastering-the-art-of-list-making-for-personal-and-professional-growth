@@ -1,5 +1,3 @@
-Chapter 1: Understanding List-Making
-====================================
 
 In this chapter, we will explore what list-making is and the benefits of effective list-making for personal and professional growth.
 

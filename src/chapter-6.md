@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Obstacles
-===============================
 
 Obstacles are an inevitable part of any journey towards personal and professional growth. Here are some ways to identify common obstacles, develop strategies for overcoming them, and build resilience in the face of setbacks:
 

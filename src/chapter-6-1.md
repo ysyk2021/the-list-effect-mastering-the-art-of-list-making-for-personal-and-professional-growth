@@ -1,5 +1,3 @@
-Identifying Common Obstacles to Achieving Goals
-==========================================================
 
 In this chapter, we will explore common obstacles that can hinder your progress towards achieving goals and provide strategies to overcome them. By identifying and addressing these obstacles, you can increase your chances of success in both personal and professional endeavors.
 
