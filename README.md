@@ -1,3 +1,6 @@
+# The List Effect: Mastering the Art of List-Making for Personal and Professional Growth
+
+Book Link: [https://zhengpublishing.com/the-list-effect-mastering-the-art-of-list-making-for-personal-and-professional-growth/](https://zhengpublishing.com/the-list-effect-mastering-the-art-of-list-making-for-personal-and-professional-growth/)
 
 The power of lists is undeniable. They help us stay organized, prioritize tasks, and achieve our goals. But not all lists are created equal. Effective list-making requires a thoughtful and strategic approach that takes into account our unique goals, priorities, and challenges.
 
